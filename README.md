@@ -1,1 +1,0 @@
-# Visi_Komputer_SMT3
